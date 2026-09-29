@@ -1,0 +1,2 @@
+# SIGED-certificado-preparatoria-autenticacion-QUMI940119MCLXRR03
+QUMI940119MCLXRR03
